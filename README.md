@@ -2,7 +2,7 @@ Intro: Hai im vickyyy! I use pt to kinda be myself and hangout w people i can re
 
 Where to find me: i usually sit in the sonic area infront of the bakery! i like making sonic characters but fem verisons hehe :3.
 
-My interests/Int: Sonic the Hedgehog, Final Fantasy, Your turn to d*e, Legend of Zelda, Dc, Batman, Pokemon (cards), glow in the dark thing, thers more i cant think:p 
+My interests/Int: Sonic the Hedgehog, Final Fantasy, Legend of Zelda, Dc, Batman, Pokemon (cards), glow in the dark things, thers more i cant think:p 
 
 Dislikes/Dni: vivziepop supporters!!, danganronpa (fandom, friends are okay), homophobes, peedos, zoophiles, any nasty ppls, and pls dont joke about epilepsy to me!. 
 
